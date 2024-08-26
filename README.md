@@ -1,6 +1,6 @@
 hey this is, Anshuman Singh Rathore
 I am interested in exploring multiple things including techs and skills.
-I am currently learning WEV DEVELOPMENT.
+I am currently learning WEBDEVELOPMENT.
 - 📫 How to reach me ...
 - email: anshumansinghrathore2307@gmail.com
 - linkedin: https://www.linkedin.com/in/anshuman-singh-rathore-499554320/
