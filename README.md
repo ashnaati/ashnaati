@@ -1,4 +1,4 @@
-hey this is, Anshuman Singh Rathore
+Hey this is, Anshuman Singh Rathore
 I am interested in exploring multiple things including techs and skills.
 I am currently learning WEBDEVELOPMENT.
 - 📫 How to reach me ...
